@@ -12,6 +12,6 @@ Paradock likes to 1984 everything
 ****
 **ayd**
 
-[gooner](Darfchive.github.io/ayd_goon.html)
+[gooner](https://Darfchive.github.io/ayd_goon.html)
 
 ****
