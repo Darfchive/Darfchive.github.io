@@ -6,12 +6,12 @@ Paradock likes to 1984 everything
 
 **Fir / cheesewhisk3rs**
 
-[suicide](https://Darfchive.github.io/Fir_suicide.html)
+[suicide](https://Darfchive.github.io/Fir/suicide)
 
 
 ****
 **ayd**
 
-[gooner](https://Darfchive.github.io/ayd_goon.html)
+[gooner](https://Darfchive.github.io/ayd/goon)
 
 ****
