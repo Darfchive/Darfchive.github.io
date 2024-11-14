@@ -15,3 +15,8 @@ Paradock likes to 1984 everything
 [gooner](https://Darfchive.github.io/ayd/goon)
 
 ****
+
+**Logan**
+
+[Response to the cp accusations](Darfchive.github.io
+/Response.html)
