@@ -18,5 +18,4 @@ Paradock likes to 1984 everything
 
 **Logan**
 
-[Response to the cp accusations](https://Darfchive.github.io
-/Response.html)
+[Response to the cp accusations](https://Darfchive.github.io/Response.html)
